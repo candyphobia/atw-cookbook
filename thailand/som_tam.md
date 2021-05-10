@@ -1,6 +1,6 @@
 # Som tam 
 
-Som tam on thaimaalainen, hapan, tulinen ja maapähkinäinen papaijasalaatti. Koska oikean som tamin käyttämää vihreää, raakaa papaijaa voi olla haastava löytää Suomesta, voi sen jotakuinkin korvata myös kesäkurpitsalla.
+Som tam on thaimaalainen, hapan, tulinen ja maapähkinäinen papaijasalaatti. Koska oikean som tamin käyttämää vihreää, raakaa papaijaa voi olla haastava löytää Suomesta, voi sen korvata myös kesäkurpitsalla.
 
 Ainekset
 
@@ -18,7 +18,7 @@ Kastike
 3 rkl limemehua
 1-2 rkl sokeria (mieluiten tummaa)
 
-Raasta papaija/kesäkurpitsa, porkkana ja kaali raasteeksi. (Vihreät pavut voivat plla kokonaisia). Puolita kirsikkatomaatit.
+Raasta papaija/kesäkurpitsa, porkkana ja kaali raasteeksi. Mikäli käytät vihreitä papuja,   voivat ne jäädä kokonaisiksi. Puolita kirsikkatomaatit.
 
 Paahda maapähkinöitä hetki pannulla ja pieni ne karkeaksi muruksi. Pilko chilit ja valkosipuli. Sekoita kastikeainekset yhteen kunnes sokeri liukenee. Maista kastiketta: sen pitäisi olla samaan aikaan hapanta, suolaista ja makeaa. Lisää tarvittaessa sokeria, kalakastiketta tai limeä kunnes maut tuntuvat tasapainoisilta. Sekoita salaattiainekset ja kastike hyvin, tarjoile.
 
