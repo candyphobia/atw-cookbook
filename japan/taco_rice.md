@@ -1,6 +1,6 @@
-# Rendang
+# Taco rice - タコライス
 
-It’s difficult to get enough of this dish. Internationally recognized as one of the most delicios foods on the planet, we sampled our fair share of rendang in Malaysia. The dish is orignally from Indonesia, but has become staple all around maritime southeast asia. This version is a simple one, inspired by multiple variations we had the opportunity to taste, especially the particularly delicious rendition at Wild Coriander by the riverside in Malacca, although we’ve not quite managed the same depth of flavor with imported spices back home and a cooking time less than one day.
+Taco rice really sums up Okinawa in a way. A dish formed from the fusion of the American influence on the island is a perfect showcase of how flexible Japanese food culture can be: Appropriate the flavours of something incredibly foreign - like readymade tex-mex spice mixes - and take some of the stereotypical elements of the dish - like pico de gallo and american cheese - creating something that both feels like an incredibly earnest take and a mockery of its orgins. But integrally Japanese. This is an attempt to get close to the version served to us at Nagos tiniest taco rice shop KAZUTAKO, filled with manga and anime figurines and a young man behind the counter trying hard not to stare while two gaijin stuff their faces with this simple but surprisingly delicious Okinawan specialty.
 
 First make the spice paste. In a food processor, make a smooth blend of shallots, ginger, dried red chilies, lemongrass and garlic cloves. If you are able to find galangal where you are at, use that as well. If not, add some extra ginger or maybe even turmeric root.
 

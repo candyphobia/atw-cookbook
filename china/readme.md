@@ -1,4 +1,3 @@
 # Kiina
 
-Tänne tulee reseptejä. 
-
+The place where you travel to a mountain village and have to hunt down the one person who speaks a language you understand well enough to communicate the need of buying a ticket through a mobile app to get up to the top of the mountain in a rickety ski-lift, where the english signage tells you you will encounter peaks with names like “Monkey King appreciates treasure” and you brush it off as funny translations until you are blown away by a rock that is perfectly in the form of a gorilla holding a chest.

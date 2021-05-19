@@ -1,4 +1,3 @@
 # Mongolia
 
-Tänne tulee reseptejä. 
-
+The place where you knowingly take a rip-off cab near the station and prepare to argue that 30 000 tugrik cannot be a fair price for a 2 kilometer journey while casually talking about sport with the driver who turns to you to speak, lowering his sunglasses, revealing his two sore looking black eyes, uttering only: “Mongolian men, strong blood” and decide the argument probably is not worth it.

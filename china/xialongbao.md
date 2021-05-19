@@ -1,2 +1,2 @@
-# Xialongbao
+# Xialongbao - 小笼包
 
