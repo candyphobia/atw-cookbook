@@ -2,20 +2,21 @@
 
 If pelmeni gives Russian cuisine a recognizable form, Rassolnik has flavor covered. A simple meat soup in which the main flavoring agent is pickles. In Irkutsk you can get this treat served to you in a huge loaf of bread in retro Soviet fittings with the appropriate accompanied prompt but unfriendly service at its namesake restaurant Rassol’nik.
 
-2l water
-300gr beef
-1,2dl  cup barley
-1/2 Tbsp salt + more to taste
-3 medium potatoes
-2 carrots 
-3 pickles + pickle juices
-1 onion
-a chunk of celery root
-2 tbsp tomato puree
-2 tbsp fresh dill
-2 Bay leaves
-1 tsp freshly ground black pepper
-Sour cream and extra dill to serve
+2l vettä
+300gr naudanlihaa
+1,2dl ohranjyviä
+1/2 rkl suolaa 
+3 keskikokoista perunaa
+2 porkkanaa
+3 suolakurkkua + suolakurkkumehua
+1 sipuli
+pala sellerinjuurta
+2 rkl tomaattipyrettä
+2 rkl tuoretta tilliä
+2 laakerinlehteä
+1 tl mustapippuria
+
+Smetanaa ja tuoretta tilliä 
 
 Lisää paksupohjaiseen pataan tai kattilaan suupaloiksi leikatut lihanpalat, vesi, teelusikallinen suolaa ja ohranjyvät, anna keittyä kevyesti kiehuen kannen alla 1-2h. 
 
