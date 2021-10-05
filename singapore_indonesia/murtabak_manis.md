@@ -1,5 +1,7 @@
 # Murtabak manis
 
+*Murtabak on suosittua katuruokaa, ja suolainen versio täytetään usein kananmunalla, jauhelihalla ja kevätsipulilla. Me tutustuimme Singaporen Pancake Boss -kahvilassa kuitenkin makeaan versioon. Juustoraaste saattaa kuulostaa oudolta yhdistelmältä suklaan kanssa, mutta murtabak manisissa enemmän on enemmän.*
+
 **Ainekset**
 
 2 kpl

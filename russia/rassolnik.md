@@ -1,6 +1,6 @@
 # Rassolnik
 
-If pelmeni gives Russian cuisine a recognizable form, Rassolnik has flavor covered. A simple meat soup in which the main flavoring agent is pickles. In Irkutsk you can get this treat served to you in a huge loaf of bread in retro Soviet fittings with the appropriate accompanied prompt but unfriendly service at its namesake restaurant Rassol’nik.
+Pelmenien antaessa venäläiselle ruoalle ikonisen muodon pitää rassolnik huolen mausta. Rassolnik on yksinkertainen lihakeitto, joka maustetaan runsaalla määrällä suolakurkkuja. In Irkutsk you can get this treat served to you in a huge loaf of bread in retro Soviet fittings with the appropriate accompanied prompt but unfriendly service at its namesake restaurant Rassol’nik. Irkutskin neuvostoliittokitchissä Rassol'nik -ravintolassa keitto tarjoillaan koverretusta leivästä, höystettynä tehokkaalla mutta tylyllä palvelulla.
 
 2l vettä
 300gr naudanlihaa
