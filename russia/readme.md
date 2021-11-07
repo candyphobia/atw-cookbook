@@ -1,3 +1,12 @@
 # Venäjä
 
-The place where after learning the train cabin rules try to make friends with your fellow travelers through idle chitchat and the newly onboarded stranger casually introduces herself as a powerful astrologist on the way from her cult in Prague to a conference near Baikal.
+Siellä missä opettelet 
+käyttämään junatohveleita, sähkösamovaareja, pikaperunamuusia,
+tottumaan yrttiteen makuun 
+yhdessä hustlaavien ammattiastrologien ja sydämensä särkeneiden kaivostyöläisten kanssa
+matkalla päättymättömien raiteiden kantamana
+matkustamaan muiden säännöillä
+
+
+
+junatohvelien etikettiä, samovaarin käyttöä, pikaperunamuusin keittämistä ja totuttelet yrttiteen makuun kulttia johtavien ammattiastrologien ja sydämensä särkeneiden kaivostyöläisten kanssa matkalla loputtomien maisemien halki.
