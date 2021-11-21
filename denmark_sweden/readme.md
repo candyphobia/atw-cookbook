@@ -1,4 +1,8 @@
-# Tanska
+# Tanska & Ruotsi
 
-Tänne tulee reseptejä. 
-
+Siellä missä palaat  
+tuntemiisi maisemiin  
+toisuuteen tottuneena  
+uutena  
+vähitellen  
+kotiin

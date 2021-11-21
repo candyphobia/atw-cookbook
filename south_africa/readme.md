@@ -1,4 +1,8 @@
 # Etelä-Afrikka
 
-Tänne tulee reseptejä. 
-
+Siellä missä kohtaat  
+epäluulon nakertamaa kauneutta,  
+valoa, pimeää ja vanhoja arpia  
+odotettuja tuttuja ja  
+odottamattomia  
+onnen yllätyskirahveja
