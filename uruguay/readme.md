@@ -1,4 +1,0 @@
-# Uruguay
-
-Tänne tulee reseptejä. 
-
