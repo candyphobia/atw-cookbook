@@ -1,6 +1,8 @@
 # Pelmeni
 
-Pelmeni might be the quintessential Russian food. Originally a form for easily preserving meat, they've formed a place in modern culture as quick, cheap and simple thing to always have in your freezer – in Russia they've come to fill the same need as instant ramen in many other cultures. Only second to instant mashed potato cups. But as instant mashed potato cups would require a freeze-drier to make properly, we've included a pelmeni recipe instead. Our fillings are inspired by the adventurous combos of Lepim i Varim restaurant in Moscow.
+Pelmenit ovat tärkeitä. Eivät varmasti vain Venäjällä, mutta ainakin Venäjällä. Alunperin tapa säilöä lihaa, ne ovat saaneet paikan nopeana, edullisena ja yksinkertaisena ruokana jota joka opiskelijalla on pakkasessa. Täyttäen saman roolin, joka ramen-nuudeleilla monessa muussa paikassa on. Jaettu valtaistuin pikaperunamuusin tykö.
+
+Mutta koska todellinen pikaperunamuusiresepti vaatisi pakastekuivaimen, löydät tästä vain pelmeni-reseptin. Täytteiden inspiraationa toimii Moskova, jaetut hostellihuoneet ja Lepim i Varim -ravintola. Muovaa ja keitä.
 
 **Taikina**
 

@@ -1,30 +1,37 @@
-# Uzbek Lagman soup
+# Uzbekistanilainen Lagman-keitto
 
-Hungry in Yekaterinburg, waiting for a train to arrive we stopped at a place called Nigora mainly because it seemed to have a lot of traffic in front of it and a lovely smell around it. We order a bunch of things in the haze of hunger, one of those an absolutely amazing bowl of fresh noodles in a hearty broth. Once consciousness slowly is regained the search begins - what is this delicous soup? Turns out, it was a lovely rendition of Uzbek lagman or lagmon. The Uzbek rendition is more of a soup or stew, while over the border in China the Uyghurs make theirs more in the way of a stir fry with the same basic set of noodles & ingredients. I’m sure that version would be delicious as well.
+Nälkäisinä Jekaterinburgissa, junaa odotellessa Jeltsin-museon jäljiltä. Pysähdymme Nigora-nimisen ravintolan kohdalla, lähinnä koska edessä oli lyhyt jono ja sisältä tulvi ruoan tuoksu. 'Tilataan kasa kaikkea, ennenkun näännytään'. Yksi kaiken osa on runsas keko tuoreita nuudeleita tuhdissa kastikkeessa, erinomaista. Kun tietoisuus vähitellen palaa, alkaa selvittäminen - mitä tämä pelastava keitto oli? Käy ilmi, että ravintolan nimi tarkoittaa uzbeekiksi rakasta ja ruokalaji on lagman, useassa keski-aasian maassa jopa kansallisruoan viittaa kantava annos. Uiguurit - joihin ruokalaji vahvasti myös liitetään - valmistavat versionsa wokkina, uzbeekit keittona.
 
-To cook the authentic lagman Uzbek soup, the recipe advises to take a thick-walled kettle. The skillet or cast iron pan with high sides will be suitable. You should kindle the animal fat, fry the meat, subculture the onion, adding here the garlic, bell peppers, tomatoes, eggplants, potatoes and radish. Preferably if you cut all uniformly on cubes, because Uzbek noodle soup lagman is not only delicious, but also a beautiful dish. When the gravy ingredients are brown you should fill it with water, bring to a boil. Add the spices: star anise (or anisetree) - certainly, cumin, red pepper, kinza (coriander), salt and other spices to taste. Add the cabbage. The gravy for Uzbek lagman you should simmer over low heat until readiness.
+Paksupohjaisessa, korkeareunaisessa kattilassa kuumenna rasva. Ruskista liha ja sipuli. Lisää pannuun jälkeen valkosipuli ja tasakokoisiksi pilkottu paprika, tomaatit, munakoiso, perunat ja retiisit. Kun liemen kaikki aineisosat ovat kypsyneet ja vähän ruskistuneet, lisää vesi ja kuumenna kiehuvaksi. Lisää mausteet: tähtianista, jeeraa, paprikajauhetta, korianteria. Määrät ovat suuntaa-antavia - oman maun mukaan, mutta ei kannata liikaa himmailla. Suolaa ja mustapippuria maistaen välillä. Lisää lopuksi pilkottu kaali ja anna kiehua puoli tuntia* matalalla lämmöllä. 
 
-While the gravy for our Uzbek lagman is quenched, we will pull the dough for noodles. The dough is smeared with a solution of salt and baking soda diluted in water, punched to absorb the solution. Small pieces of dough are rolled into the form of pencils. Each such "pencil" is oiled and stretched to about a meter. To do this, the wiring is taken at both ends and stretched mid hitting the table. The meter of noodles is folded in half and the stretching is repeating.
+Kun liemi keittyy, valmista nuudelit. Suuressa kulhossa sekoita jauhot, ripaus suolaa ja vesi taikinaksi. Anna seistä vartti. Öljytyillä käsillä puristele taikina tasaisen paksuksi neliöksi. Leikkaa neliö kolmeen puikulaan. Rullaa taikinapuikulaa pöytää vasten kunnes saat siitä muodostettua pikkusormea ohuemman nauhan. Kierrä lautasella nauha itsensä ympäri spiraaliksi, lautasen keskeltä aloittaen. Öljyä spiraali kevyesti päältä, peitä liinalla ja toista muilla puikuloilla, jatkaen spiraalia. Jätä spiraali lepäämään vartiksi.
+
+Pura nuudelispiraali samalla pyöritellen nuudelinauhaa ohuemmaksi pöytää vasten ja keräten nauhan kasaksi. Mikäli olet öljynnyt spiraalit tarpeeksi, ei nuudelinauhan pitäisi tarttua itseensä. Poimi toiseen käteesi yhden nuudelinauhan pää sormiesi väliin, nosta nauha kämmenselälläsi. Nosta toisen käden selällä lisää nuudelia kasasta ja toista poimien koko nuudelin vyyhdiksi käsiesi välille. Kun koko nuudeli on käsissäsi, läpsi nuudelia pöytää vasten samalla hitaasti venyttäen kunnes haluttu paksuus on saavutettu - lagmania varten nuudelit saavat olla melko tuhtejakin. Keitä nuudeleita kiehuvassa vedessä kunnes ne ovat kypsiä, noin kymmenen minuuttia*.
 
 **Nuudelit**
 
-1kg jauhoja
-2 kananmunaa
-1 tl voita
-0,5 tl leivinsoodaa
+250 gr vehnäjauhoja
+125 ml vettä
+suolaa
 öljyä
 
 **Liemi**
+2 rkl voita
 500g lihaa (lammasta tai nautaa)
 300 g kaalia
 2 munakoisoa
 1–2 perunaa
 retiisejä
+paprika
 3–4 sipulia
 valkosipuli
 2–3 tomaattia
-laakerinlehtiä
-tähtianista
-jeeraa
+1l vettä
+1-2 laakerinlehteä
+1-2 tähtianista
+1 tl paprikajauhetta
+1 tl korianteria
+1 tl jeeraa
 suolaa
 
+*Tarkista ajat!

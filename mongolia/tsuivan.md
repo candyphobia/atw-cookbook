@@ -1,16 +1,14 @@
 # Tsuivan
 
-Tsuivan is a straight up nice, hot bowl of fresh noodles, and not much else. According to the guy driving us around Terelj, this is the main sustenance for most working class people – a bowl of this for lunch will keep you full of calories for the whole day. Our version is inspired by the best vegan restaurant in Ulanbaatar, Luna Blanca, and mongolfood.info.
+Tsuivan on suora, simppeli kasa nuudeleita eikä paljoa muuta. Paitsi maukasta. Tereljin luonnonpuistossa meitä kuljettaneen kaverin mukaan tämä on pääasiallinen ravinto isolle osalle Mongolian työväenluokkaa. Ja se on helppo uskoa, iso snägärikertislautanen tätä ja kalorit on kerätty koko päivältä. Tässä versiossa perinteisempi alelaarin mysteeriliha saa väistää vegaanisen vaihtoehdon tilalta, lyhyessä ajassa luottamuksen voittaneen Luna Blanca -kasvisravintolan inspiroimana.
 
-## Noodles
+## Nuudelit
 
-Mix the water and flour into a ball and let it rest while you prepare the other ingredients.
+Sekoita vesi ja vehnäjauhot palloksi. Anna levätä sillä välillä kun valmistelet muut ainekset.
 
-Split the dough into even pieces and roll them out into thin round sheets that fit onto your frying pan. Spread vegetable oil onto the surface of one of the sheets and place another sheet on top of it. Repeat for all sheets.
+Jaa taikina tasaisiin paloihin ja rullaa ne ohuiksi, pyöreiksi levyiksi jotka mahtuvat paistinpannuusi. Levitä öljyä levyjen pinnalle ja pinoa ne. Nosta levy paistinpannulle matalalla lämmöllä. Lämmitä levyä pari minuuttia, käännä ja lämmitä toista puolta. Tarkoituksena ei ole varsinaisesti paistaa levyjä, vaan kuivattaa niiden pinta.
 
-Add a little oil onto the top sheet and flip onto a frying pan on low heat. Warm on one side for a few minutes, repeat on the other side. The goal is not to fry the sheets, but to dry the surface. A little color is fine.
-
-Remove the sheet from the pan and cut it into strips the width you prefer your noodles. Repeat this with the rest of the dough.
+Kun levy on käynyt paistinpannussa leikkaa sen levyisiksi nuudeleiksi kun haluat syödä ja toista kaikilla levyillä.
 
 ## Stew
 
