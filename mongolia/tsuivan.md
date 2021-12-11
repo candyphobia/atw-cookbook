@@ -1,26 +1,36 @@
 # Tsuivan
 
-Tsuivan on suora, simppeli kasa nuudeleita eikä paljoa muuta. Paitsi maukasta. Tereljin luonnonpuistossa meitä kuljettaneen kaverin mukaan tämä on pääasiallinen ravinto isolle osalle Mongolian työväenluokkaa. Ja se on helppo uskoa, iso snägärikertislautanen tätä ja kalorit on kerätty koko päivältä. Tässä versiossa perinteisempi alelaarin mysteeriliha saa väistää vegaanisen vaihtoehdon tilalta, lyhyessä ajassa luottamuksen voittaneen Luna Blanca -kasvisravintolan inspiroimana.
+Tsuivan on suoraviivainen, simppeli padallinen nuudeleita eikä paljoa muuta. Paitsi herkullista. Tereljin luonnonpuistossa meitä kuljettaneen kaverin mukaan tämä on pääasiallinen ravinto isolle osalle Mongolian työväenluokkaa. Ja se on helppo uskoa, iso snägärikertislautanen tätä ja kalorit on kerätty koko päivältä. Tässä versiossa perinteisempi alelaarin mysteeriliha saa väistää vegaanisen vaihtoehdon tilalta, lyhyessä ajassa luottamuksen voittaneen Luna Blanca -kasvisravintolan inspiroimana.
 
 ## Nuudelit
 
-Sekoita vesi ja vehnäjauhot palloksi. Anna levätä sillä välillä kun valmistelet muut ainekset.
+300g vehnäjauhoja
+200g vettä
+öljyä
 
-Jaa taikina tasaisiin paloihin ja rullaa ne ohuiksi, pyöreiksi levyiksi jotka mahtuvat paistinpannuusi. Levitä öljyä levyjen pinnalle ja pinoa ne. Nosta levy paistinpannulle matalalla lämmöllä. Lämmitä levyä pari minuuttia, käännä ja lämmitä toista puolta. Tarkoituksena ei ole varsinaisesti paistaa levyjä, vaan kuivattaa niiden pinta.
+Sekoita vesi ja vehnäjauhot palloksi. Anna levätä sillä välillä kun valmistelet muut ainekset, 10-15 minuuttia.
 
-Kun levy on käynyt paistinpannussa leikkaa sen levyisiksi nuudeleiksi kun haluat syödä ja toista kaikilla levyillä.
+Jaa taikina neljään palloon. Rullaa pallo ohueksi pyöreäksi levyksi, kuitenkin sen kokoiseksi että se mahtuu paistinpannuusi. Öljyä kevyesti levyn molemmat puolet ja nosta se sivuun. Toista muilla palloilla pinoten ne ensimmäisen päälle.
 
-## Stew
+Nosta levypino paistinpannulle matalalle lämmölle. Lämmitä pinoa pari minuuttia, käännä ja lämmitä toista puolta. Tarkoituksena ei ole varsinaisesti paistaa levyjä, vaan kuivattaa niiden pinta.
 
-Cut your vegetables into narrow stripes. The carrot, onion and cabbage are essential but you can freestyle with anything you would like to add – sweet bell peppers are a nice addition when in season.
+Kun levy on käynyt paistinpannussa leikkaa suikaleiksi sen levyisiksi nuudeleiksi kun haluat.
 
-Rehydrate the soy protein according to the instructions of the product.
+## Pata
 
-In a large, preferrably thick-bottomed pot, sauté the onion in vegetable oil. Add the carrot and any other hard vegetables that require a longer time. After a minute or two, add the soy protein – add vegetable oil if things get sticky. Add the garlic, bell pepper and chili, season with black pepper and salt or soy sauce.
+1 sipuli
+2 porkkanaa
+2 valkosipulin kynttä
+300g kaalia
+1dl soijarouhetta
+1 paprika
+1 tuore punainen chili (valinnainen)
+öljyä
 
-Add the cabbage, mix and cook until the cabbage has clearly lost some volume.
+Suikaloi kasvikset. Porkkana, sipuli ja kaali ovat perinteisesti aina annoksessa mukana, mutta 'oman maun mukaan' on hyvä periaate - mukaan sitä mitä kaapista sattuu löytymään. Valmista soijarouhe pakkauksen ohjeiden mukaan - tyypillisesti liottaen vedessä tai paistaen vedessä panussa.
 
-Add water to halfway up the vegetables, add the noodle strips on top and cook with the lid on for 15 minutes. Check that the noodles are done by taking a chopstick or fork and separating the noodles. If the noodles easily separate, they are done.
+Kannellisessa ja mielellään paksupohjaisessa padassa paista sipuli öljyssä. Lisää porkkanat ja kaikki muut kovat juurekset jotka tarvitsevat pidemmän kypsytysajan. Parin minuutin kuluttua lisää soijarouhe ja lisää vähän öljyä. Lisää valkosipuli, paprika, chili ja mausta mustapippurilla ja suolalla tai soijakastikkeella. Lisää lopuksi kaali. Sekoita ja paista kunnes kaali on selvästi alkanut kutistua.
 
-Remove the pot from heat and mix everything together. For seasoning, add a dash of soy sauce.
+Lisää vettä noin puoleenväliin vihannesten pintaa ja aseta leikatut nuudelit kasvisten päälle. Sulje kansi ja keitä n. 15 minuuttia. Nuudelit ovat kypsiä kun ne eroavat helposti toisistaan.
 
+Nosta pata levyltä ja sekoita kaikki keskenään. Mausta kevyesti soijakastikkeella.
