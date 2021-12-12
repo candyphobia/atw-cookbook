@@ -10,7 +10,7 @@
 250 g tapiokajauhoja
 1 tl suolaa
 
-Sekoita suola ja tapiokajauhot isossa kulhossa. Sekoita kananmuna ja juustot yhteen toisessa astiassa. Kuumenna maito ja öljy kiehumispisteeseen kattilassa. Kun seos on kuumaa, kaada se tapiokajauhojen sekaan. Seoksesta ei tule tässä vaiheessa vielä tasaista, se ei haittaa. Odota 5-10 minuuttia kunnes tapiokamaitoseos on viilentynyt, ja lisää munajuustoseos. Vaivaa massa tasaiseksi palloksi. Öljyä kätesi kevyesti ja ota taikinasta hieman ruokalusikkaa isompia paloja. Pyörittele palloiksi ja paista 175 asteessa paperoidulla pellillä.
+Sekoita suola ja tapiokajauhot isossa kulhossa. Sekoita kananmuna ja juustot yhteen toisessa astiassa. Kuumenna maito ja öljy kiehumispisteeseen kattilassa. Kun seos on kuumaa, kaada se tapiokajauhojen sekaan. Seoksesta ei tule tässä vaiheessa vielä tasaista, se ei haittaa. Odota 5-10 minuuttia kunnes tapiokamaitoseos on viilentynyt, ja lisää munajuustoseos. Vaivaa massa tasaiseksi palloksi. Öljyä kätesi kevyesti ja ota taikinasta hieman ruokalusikkaa isompia paloja. Pyörittele palloiksi ja paista 175 asteessa paperoidulla pellillä n. 35 minuuttia, kunnes pallot ovat päältä täplikkäitä ja kullanruskeita.
 
 
 
