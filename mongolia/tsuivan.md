@@ -27,9 +27,9 @@ Kun levy on käynyt paistinpannussa leikkaa suikaleiksi sen levyisiksi nuudeleik
 1 tuore punainen chili (valinnainen)
 öljyä
 
-Suikaloi kasvikset. Porkkana, sipuli ja kaali ovat perinteisesti aina annoksessa mukana, mutta 'oman maun mukaan' on hyvä periaate - mukaan sitä mitä kaapista sattuu löytymään. Valmista soijarouhe pakkauksen ohjeiden mukaan - tyypillisesti liottaen vedessä tai paistaen vedessä panussa.
+Suikaloi kasvikset. Porkkana, sipuli ja kaali ovat perinteisesti aina annoksessa mukana, mutta mukaan voi lisätä sitä mitä kaapista sattuu löytymään. Valmista soijarouhe pakkauksen ohjeiden mukaan.
 
-Kannellisessa ja mielellään paksupohjaisessa padassa paista sipuli öljyssä. Lisää porkkanat ja kaikki muut kovat juurekset jotka tarvitsevat pidemmän kypsytysajan. Parin minuutin kuluttua lisää soijarouhe ja lisää vähän öljyä. Lisää valkosipuli, paprika, chili ja mausta mustapippurilla ja suolalla tai soijakastikkeella. Lisää lopuksi kaali. Sekoita ja paista kunnes kaali on selvästi alkanut kutistua.
+Paista sipuli öljyssä, mieluiten kannellisessa ja paksupohjaisessa padassa. Lisää porkkanat ja kaikki muut kovat juurekset jotka tarvitsevat pidemmän kypsytysajan. Parin minuutin kuluttua lisää soijarouhe ja lisää vähän öljyä. Lisää valkosipuli, paprika, chili ja mausta mustapippurilla ja suolalla tai soijakastikkeella. Lisää lopuksi kaali. Sekoita ja paista kunnes kaali on selvästi alkanut kutistua.
 
 Lisää vettä noin puoleenväliin vihannesten pintaa ja aseta leikatut nuudelit kasvisten päälle. Sulje kansi ja keitä n. 15 minuuttia. Nuudelit ovat kypsiä kun ne eroavat helposti toisistaan.
 
