@@ -16,6 +16,13 @@
 1 tlk korianterijauhetta
 1 rkl kecap manista
 
+## Satay celup
+Valmista sataykastiketta
+2 l	kasvis- tai kanalientä
+sokeria
+suolaa
+jauhettuja maapähkinöitä
+
 Hienonna maapähkinät monitoimikoneessa.
 Liota tamarindia 0,5dl vedessä 15 min. Puristesle tamarindi vedessä ja heitä jäljelle jäävä kuori pois.
 Soseuta chilit, valkosipulinkynnet, salotti, sitruunaruohon palaset ja kuorittu galangajuuri maustemyllyssä.
@@ -25,4 +32,5 @@ Lisää maapähkinät, tamarindi, vesi, suola, sokeri, korianterijauhe ja kecap 
 Laske lämpö matalalle, sekoita tasaisesti kunnes kastike alkaa paksuuntua, n. 10 min. Öljy eroaa vedestä.
 Anna jäähtyä, säilytä jääkaapissa
 
-Keitä n. 2l kasvis tai kanalientä. Lisää satay-kastike ja anna kiehua matalalla lämmöllä n. 5min. Mausta sokerilla, suolalla ja jauhetuilla maapähkinöillä.
+## Satay celup
+Kuumenna kana- tai kasvisliemi. Lisää satay-kastike ja anna kiehua matalalla lämmöllä n. 5min. Mausta sokerilla, suolalla ja jauhetuilla maapähkinöillä.
