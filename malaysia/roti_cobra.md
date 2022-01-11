@@ -1,16 +1,18 @@
 ## Roti canai
 5 dl vehnäjauhoja
 1 rkl suolaa
-2.5dl vettä
-0.5dl öljyä
+2,5 dl vettä
+0,5 dl öljyä tai voita
 
-Vaivaa taikina.
-Muodosta palloiksi.
-Öljyä pallot.
-Jätä yön yli hyvin voideltuna.
-Litistä kunnes läpinäkyvän ohut.
-Rypistä reunat yhteen pötköksi
-Rullaa pötkö spiraaliksi, litistä.
+Sekoita jauhot, suola ja vesi ja vaivaa taikinaksi. 
+Muodosta taikina kahdeksaksi samankokoiseksi palloksi.
+Öljyä pallot, ja laita ne vuokaan.
+Peittele pallot kostealla pyyhkeellä tai kelmulla ja jätä lepäämään jääkaappiin yön yli.
+Seuraavana päivänä ota pallot lämpenemään noin kolme tuntia ennen leipomista. 
+Kun pallot ovat lämmenneet, litistä ne öljytyllä pöydällä kämmenillä ulospäin työntäen läpikuultavan ohuiksi levyiksi. 
+Ei haittaa, vaikka levyt vähän repeytyvät.
+Rullaa levyt pitkiksi pötköiksi.
+Rullaa pötkö spiraaliksi ja litistä.
 Lepuuta 10min.
 Paista pannussa
 
