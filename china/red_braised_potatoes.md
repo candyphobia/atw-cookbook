@@ -5,7 +5,7 @@ puoli kiloa perunoita
 2 tlk suolaa
 3 kevätsipulia
 
-Kuori ja keitä perunat, lisää veteen suolaa.
+Kuori ja keitä perunat suolatussa vedessä.
 Jäähdytä perunat kylmällä vedellä.
 Kuumenna öljy pannussa.
 Lisää doubanjiang ja paista kunnes öljy värjäytyy.
