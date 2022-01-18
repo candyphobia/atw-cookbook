@@ -13,7 +13,7 @@ Kiehauta suolaliuos ja anna jäähtyä.
 Silppua kaali ja sekoita kulhossa suolan kanssa. Anna levätä 15 minuuttia huoneenlämmössä.
 Puristele kaalista mahdollisimman paljon nestettä.
 Lisää kuminansiemenet ja sekoita.
-Paina kaali lasipurkin pohjalle mahdollisimman tiiviisti.
+Paina kaali puhtaan lasipurkin pohjalle mahdollisimman tiiviisti.
 Kaada päälle suolaliuos niin, että kaikki kaali peittyy. Jätä n. 5cm ilmaa astiaan.
 Sulje purkki ja säilytä pimeässä huoneenlämmössä 1-2 päivää, kunnes seos alkaa käydä.
 Täydennä tarvittaessa suolaliuoksella, niin, että kaikki kaali on peitetty nesteellä.
