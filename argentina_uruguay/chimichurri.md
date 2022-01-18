@@ -12,6 +12,7 @@
 > - Suolaa ja pippuria
 > - Muita yrttejä maun mukaan, esim. korianteria
 
-Leikkaa yrtit, valkosipula ja kevätsipuli pieneksi silpuksi. Lisää punaviinietikka, limen mehu (puolikkaan sitruunan mehu on hyvä vaihtoehto myös) ja oliiviöljy. Jos halua löysemmän kastikkeen, lisää enemmän oliiviöljyä - yrtit maustavat tämän erinomaisesti.
+Leikkaa yrtit, valkosipula ja kevätsipuli pieneksi silpuksi. Lisää punaviinietikka, limen mehu ja oliiviöljy. Lisää punaviinietikka, limen mehu ja oliiviöljy. 
+Tarvittaessa voit korvata limen myös puolikkaan sitruunan mehulla. Jos halua löysemmän kastikkeen, lisää enemmän oliiviöljyä - yrtit maustavat tämän erinomaisesti.
 
 Korianteri kans jees
