@@ -1,6 +1,6 @@
 # Ceviche
 
-Ceviche on Perun kansallisruoka.
+Ceviche on Perun kansallisruoka. Jos käytät järvikalaa, muista pakastaa se ensin vähintään vuorokaudeksi loisriskin takia.
 
 n. kilo mahdollisimman tuoretta kalaa
 1 punainen sipuli
