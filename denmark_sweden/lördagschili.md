@@ -2,13 +2,13 @@
 
 800g naudan keittolihaa
 2 sipulia
-4 valkosipulinkynttä
+4 valkosipulin kynttä
 1 punainen chili
 1 rkl öljyä
-1 laakerinlehti
+2 laakerinlehteä
 1 tlk fenkolinsiemeniä
-1 tlk oreganoa
-1 tlk paprikaa
+1 tlk meksikon oreganoa
+1 tlk paprikajauhetta
 2 tlk jauhettua korianteria
 2 tlk jeeraa
 2 rkl tomaattipyreetä
