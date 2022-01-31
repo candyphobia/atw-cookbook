@@ -15,3 +15,12 @@ Lisää huoneenlämpöinen voi, sekoita.
 Lisää vettä, ensin 1dl - jos taikina vaikuttaa niin murenevalta ettei siitä voi muodostaa levyä, lisää toinen dl.
 
 Pyöritä taikina kahdeksi palloksi. Mikäli et tee empanadoja heti, laita pallo jääkaappiin kelmutettuna. Kauli pallosta ohut levy, n. 3mm. Tee levystä pyöreitä taikinakuoria, 12-15 cm halkaisijaltaan riippuen toivotusta koosta. Aseta taikinakuoren keskelle täytettä, 15cm kuoreen n. 2 rkl. Käännä taikina täytteen yli, sulje painamalla reunat yhteen haarukalla. Empanadojen rypyttämiseen on monenmonta eri tapaa. Verkkohaulla 'repulgue de empanadas' pääsee alkuun eri tyyleistä.
+
+> Täyte
+> - 200g silken tofua
+> - timjami
+> - 1 sitruunan mehu
+> - 200g maissia
+> - 150g juustoketta
+> - suolaa
+> - pippuria
