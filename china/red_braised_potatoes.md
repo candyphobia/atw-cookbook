@@ -1,15 +1,13 @@
 puoli kiloa perunoita
 4 valkosipulinkynttä
-2 tlk doubanjiang
+2 tlk chiliöljyä
+1 tlk mustapapuchiliöljyä
 2 tlk öljyä
-2 tlk suolaa
-3 kevätsipulia
+2 tlk soijakastiketta
 
-Kuori ja keitä perunat suolatussa vedessä.
-Jäähdytä perunat kylmällä vedellä.
+Kuutioi perunat parin sentin levyisiksi kuutioiksi.
 Kuumenna öljy pannussa.
-Lisää doubanjiang ja paista kunnes öljy värjäytyy.
+Lisää chiliöljy ja mustapapuchiliöljy.
 Lisää valkosipuli.
-Leikkaa kevätsipuli lyhyiksi pätkiksi.
-Lisää perunat ja kevätsipuli.
-Paista hetki, sekoittaen niin että perunat ovat kauttaaltaan öljyssä.
+Lisää perunat.
+Paista hetki korkealla lämmöllä, laske lämpötilaa ja paista 
